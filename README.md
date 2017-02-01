@@ -1,2 +1,6 @@
 # hello-world
 Creating grids 
+Hi my name is Wendy diaz
+IM A STAY AT HOME MOM OF 3 BOYS.
+LOVE SPORTS!  
+CAN'T WAIT TO START THIS NEW CHAPTER IN MY BOOK CALLED "LIFE"
